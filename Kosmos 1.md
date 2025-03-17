@@ -1,5 +1,5 @@
 
-
+Masz rację! **Sektor kosmiczny** to jeden z najbardziej przyszłościowych, choć nadal wysokiego ryzyka. Inwestowanie w spółki kosmiczne może być świetnym uzupełnieniem portfela dla osób z długoterminową perspektywą.
 
 ### **Dlaczego warto inwestować w sektor kosmiczny?**
 
